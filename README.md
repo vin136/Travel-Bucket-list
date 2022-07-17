@@ -21,4 +21,12 @@ New Mexico
 
 SEABOURN CRUISE SHIP/TRIP TO ALASKA.
 
-This means I'll never call.
+This means I wont call you `divya garu` again
+This means I'll forget we are getting married until the day before,when you remind me
+This means I might ocassionally infuriate, disappoint or surprise you
+This means I might exhaust all the ways of telling I like you, until you are little annoyed, and still do so
+This means I might do things that my older self would cringe and laugh - like writing this
+This means I considering the possibility of really opening up to someone
+Are you sure ? I am a bit crazy too.
+
+
