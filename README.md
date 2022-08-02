@@ -29,6 +29,14 @@ Loafers
 
 1.[Dr.Martens Loafers](https://www.drmartens.com/us/en/adrian-arcadia-leather-tassle-loafers/p/24370600#wornByYou)
 
+style-tips
+height
+- High raise trousers with tucked in tee
+- Go monchrome
+
+Minimal aesthetic
+- basic undercolors: white,black,grey.
+
 
 
 
