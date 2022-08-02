@@ -37,6 +37,9 @@ height
 Minimal aesthetic
 - basic undercolors: white,black,grey.
 
+Pants keywords
+- smart cropped pants
+
 
 
 
