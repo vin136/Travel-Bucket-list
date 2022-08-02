@@ -40,6 +40,10 @@ Minimal aesthetic
 Pants keywords
 - smart cropped pants
 
+## Wardrobe essentials
+Denim jeans
+
+Regular fit high raise black, white jeans.(eg: Levis 501)
 
 
 
