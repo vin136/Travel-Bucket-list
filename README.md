@@ -56,3 +56,8 @@ Pants keywords
 Ideas
 1. Men split joggers + balenciaga.
 
+## Bond inspired
+
+1. Tan suede jacket + polo and khakhi
+2. Cardigan + formal white shirt
+
