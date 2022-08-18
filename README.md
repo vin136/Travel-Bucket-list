@@ -61,3 +61,7 @@ Ideas
 1. Tan suede jacket + polo and khakhi
 2. Cardigan + formal white shirt
 
+## Pants
+
+1. Cheap pleated khakis [(Dockers)](https://www.amazon.com/Dockers-Relaxed-Signature-Cotton-Stretch/dp/B07846LQX3/?asc_campaign=&asc_source=&asc_refurl=https%3A%2F%2Fwww.gq.com%2Fgallery%2Fbest-high-waisted-pants&tag=gqgensqua-20&ascsubtag=61e0a0b3b3ee12c3a7b7593d&th=1&psc=1)
+
