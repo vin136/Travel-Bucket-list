@@ -74,3 +74,4 @@ Ideas
 ## Shoes
 
 1. https://meermin.com/collections/mens-oxfords
+2. https://www.allenedmonds.com/mens-shoes/boots/casual-boots?icid=TopNav_Boots_Casual
