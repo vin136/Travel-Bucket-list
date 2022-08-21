@@ -70,3 +70,7 @@ Ideas
 1. Acne studios
 2. Arket
 3. COS
+
+## Shoes
+
+1. https://meermin.com/collections/mens-oxfords
