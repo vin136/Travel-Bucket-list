@@ -75,3 +75,7 @@ Ideas
 
 1. https://meermin.com/collections/mens-oxfords
 2. https://www.allenedmonds.com/mens-shoes/boots/casual-boots?icid=TopNav_Boots_Casual
+
+## Jackets
+
+1. [Retro Jacket](https://www.aliexpress.com/item/2251832736805124.html?spm=a2g0o.productlist.0.0.497e5240b4RxOo&algo_pvid=45a9b298-256f-4b67-bc17-3f1af387dda6&algo_exp_id=45a9b298-256f-4b67-bc17-3f1af387dda6-23&pdp_ext_f=%7B%22sku_id%22%3A%2266061873891%22%7D&pdp_npi=2%40dis%21USD%2180.48%2139.44%21%21%21%21%21%40210318cb16619131368373501e0d88%2166061873891%21sea&curPageLogUid=s5AQMdXIDWJF)
