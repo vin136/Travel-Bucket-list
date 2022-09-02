@@ -87,3 +87,7 @@ Ideas
 4. [wax jacke](https://www.rogueterritory.com/collections/jackets/products/supply-jacket-ridgeline?variant=5415651409952)
 
 5. [GH bass Black weejun/loafer](https://www.ghbass.com/mens-lincoln-weejun-baz1w003)
+
+## American Heritage shoes
+
+[Killer shit](https://www.tecovas.com/products/the-chance?variant=32985966051437)
