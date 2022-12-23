@@ -95,3 +95,8 @@ Ideas
 [Cowboy boots](https://www.tecovas.com/products/the-bandera?variant=40178373394627)
 
 [ROY](https://www.tecovas.com/products/the-roy)
+
+
+## Leather jackets
+
+1. [Boda Skins](https://bodaskins.us.com/products/hendrix)
