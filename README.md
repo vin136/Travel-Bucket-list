@@ -65,7 +65,7 @@ Ideas
 
 1. Cheap pleated khakis [(Dockers)](https://www.amazon.com/Dockers-Relaxed-Signature-Cotton-Stretch/dp/B07846LQX3/?asc_campaign=&asc_source=&asc_refurl=https%3A%2F%2Fwww.gq.com%2Fgallery%2Fbest-high-waisted-pants&tag=gqgensqua-20&ascsubtag=61e0a0b3b3ee12c3a7b7593d&th=1&psc=1)
 
-2. [Flared pants](https://www.urbanoutfitters.com/shop/standard-cloth-flared-cargo-pant2?category=mens-pants&color=045&type=REGULAR&_gl=1%2a8u9eu2%2a_up%2aMQ..&gclid=Cj0KCQjw8e-gBhD0ARIsAJiDsaVB2KAkbcAtidaSYWNJA8eMUsV7Mn6PzyrP6SGAlHUzKdNaI-jegMsaAmRlEALw_wcB&gclsrc=aw.ds&quantity=1)
+2. [Flared pants](https://www.urbanoutfitters.com/shop/standard-cloth-flared-cargo-pant2?category=mens-pants&color=045&type=REGULAR&_gl=1%2a8u9eu2%2a_up%2aMQ..&gclid=Cj0KCQjw8e-gBhD0ARIsAJiDsaVB2KAkbcAtidaSYWNJA8eMUsV7Mn6PzyrP6SGAlHUzKdNaI-jegMsaAmRlEALw_wcB&gclsrc=aw.ds&quantity=1), and [this](https://www.urbanoutfitters.com/shop/bdg-big-jack-washed-canvas-cargo-pant?recommendation=rectray-shop-the-look&color=001&type=REGULAR&quantity=1)
 
 ## Brands
 
