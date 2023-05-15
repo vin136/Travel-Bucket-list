@@ -1,5 +1,9 @@
 # Travel-Bucket-list
 
+## NYC lessons
+
+1. [class pass: try stuff](https://classpass.com/)
+
 ## USA
 
 NATIONAL PARKS:
