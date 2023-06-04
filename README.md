@@ -3,6 +3,7 @@
 ## NYC lessons
 
 1. [class pass: try stuff](https://classpass.com/)
+2. [Go to salsa here](https://www.salsainqueens.com/)
 
 ## USA
 
