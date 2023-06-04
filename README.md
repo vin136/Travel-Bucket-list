@@ -4,6 +4,7 @@
 
 1. [class pass: try stuff](https://classpass.com/)
 2. [Go to salsa here](https://www.salsainqueens.com/)
+3. [Boxing](https://classpass.com/studios/brotherhood-boxing-brooklyn)
 
 ## USA
 
