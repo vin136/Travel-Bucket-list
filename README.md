@@ -70,7 +70,7 @@ For inspiration: [Drake's](https://us.drakes.com/products/dark-brown-suede-weste
 11. Highraise trousers - spier mccay.
 12. utility pants/ cargos - bronsonshop.
 
-
+refer here for durable/highest quality brands - [here](https://www.youtube.com/watch?v=MqhcSRuuBzs&t=534s)
 Ideas
 1. Men split joggers + balenciaga.
 
