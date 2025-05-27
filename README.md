@@ -46,17 +46,29 @@ Minimal aesthetic
 Pants keywords
 - smart cropped pants
 
+# On styling
+
+For inspiration: [Drake's](https://us.drakes.com/products/dark-brown-suede-western-belt), [Alan Flusser](https://alanflusser.com/), [the armoury](https://www.thearmoury.com/?srsltid=AfmBOopnE5n_PBXrXnFxgFoXwCzh-e-qtJZYKJTvBHRGIhBGnGJghaOq)
+
+
 ## Wardrobe essentials
 
 
 1. Regular fit high raise Denim jeans:  black, white jeans.(eg: Levis 501)
-2. Boots. (1. Black Dr.Martens). 2. More formal boots
+2. Boots. (1. Black Dr.Martens). 2. More formal boots 
 3. White sneakers.(eg: [nike air](https://www.nike.com/t/air-force-1-07-mens-shoes-5QFp5Z/CW2288-111?nikemt=true&cp=81833643301_search_%7CPRODUCT_GROUP%7CGOOGLE%7C71700000093450189%7CAll_X_X_X_X-Device_X_Nike-AF1-Blazer_X_SSC%7C%7Cc&gclsrc=aw.ds&&gclid=CjwKCAjwlqOXBhBqEiwA-hhitJHeKCVa0u2FIiZvPXh8v-HVMOVno-8xS1rX2-mTILvbbVnjknDS8xoCT9AQAvD_BwE&gclsrc=aw.ds)
 , 2. Adidas astir or new balance(chunky)).
 4. Tee shirts
  - colors: white,black,navy,grey
 5. Turtle neck 
  - Black, Cream.
+6.Belt: thinner,western inspired belts - try tecovas and other similar brands
+7. Fair isle vest, thin cashmere v-neck sweater
+8.Plain Dress-shirts: [woolnprince](https://woolandprince.com/products/210-button-down-shirt-blue-oxford)
+9. field jacket - [M65](https://bronsonshop.com/collections/jackets-coats/products/1969-m-65-field-jacket-taxi-driver?variant=50242659877080) or Alibaba
+10. Bomber/flight jacket - bronsonshop.
+11. Highraise trousers - spier mccay.
+12. utility pants/ cargos - bronsonshop.
 
 
 Ideas
@@ -78,6 +90,7 @@ Ideas
 1. Acne studios
 2. Arket
 3. COS
+4. Spier & MCay, Wool and prince, Proper cloth, bronsonshop
 
 ## Shoes
 
