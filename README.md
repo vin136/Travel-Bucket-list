@@ -49,7 +49,7 @@ Pants keywords
 # On styling
 
 For inspiration: [Drake's](https://us.drakes.com/products/dark-brown-suede-western-belt), [Alan Flusser](https://alanflusser.com/), [the armoury](https://www.thearmoury.com/?srsltid=AfmBOopnE5n_PBXrXnFxgFoXwCzh-e-qtJZYKJTvBHRGIhBGnGJghaOq)
-
+, [ethan-wong](https://alittlebitofrest.com/)
 
 ## Wardrobe essentials
 
