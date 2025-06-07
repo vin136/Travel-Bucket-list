@@ -120,8 +120,10 @@ Ideas
 vintage mens wear [cathcart](https://www.cathcartlondon.com/en-us/pages/our-story)
 [chester](https://www.chestercordite.com/testimonials.html)
 
-watch: titanium Citizen Watch=>Model: NJ0180-80X
+##watch
 
+1. titanium Citizen Watch=>Model: NJ0180-80X
+2. Sieko [Alpinist](https://seikousa.com/products/spb121?srsltid=AfmBOooz_z1RuhhIgLQzlaNej0AXSYU2druU6JPAwEoHQANKSrKse8CX)
 ## Leather jackets
 
 1. [Boda Skins](https://bodaskins.us.com/products/hendrix)
