@@ -133,6 +133,9 @@ vintage mens wear
 ## Leather jackets
 
 1. [Boda Skins](https://bodaskins.us.com/products/hendrix)
+2. [thedi leathers](https://thedi-leathers.com/product/bag-tb30090/)
+3. [aero leathers](https://www.aeroleatherclothing.com/shop/jackets--made-to-order/mens--best-sellers)
+4. [real mccoys](https://therealmccoys.com/collections/outerwear/denim-jackets)
 
 
 #b
