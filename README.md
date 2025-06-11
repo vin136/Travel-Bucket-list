@@ -128,6 +128,8 @@ vintage mens wear
 
 1. titanium Citizen Watch=>Model: NJ0180-80X
 2. Sieko [Alpinist](https://seikousa.com/products/spb121?srsltid=AfmBOooz_z1RuhhIgLQzlaNej0AXSYU2druU6JPAwEoHQANKSrKse8CX)
+3. Timex [titanium](https://timex.com/products/deepwater-reef-200-titanium-automatic-41mm-synthetic-rubber-strap-watch-tw2w73800?nbt=nb%3Aadwords%3Ax%3A18334121908%3A%3A&nb_adtype=pla&nb_kwd=&nb_ti=&nb_mi=1259359&nb_pc=online&nb_pi=TW2W73800VQ&nb_ppi=&nb_placement=&nb_li_ms=&nb_lp_ms=&nb_fii=&nb_ap=&nb_mt=&utm_content=pmax&gad_source=1&gad_campaignid=17671873163&gbraid=0AAAAAD-OJ4MVpNGX9tpcrX0KS1zv5fXkw&gclid=CjwKCAjwr5_CBhBlEiwAzfwYuMcFsM4rctwb2Hlw7RdcEG8aWLFtTKb9zRdRn_aaP9jDsB0UMm5sohoCaJcQAvD_BwE)
+4. Hamilton Murph from interstellar: [here](https://www.jomashop.com/hamilton-khaki-field-murph-automatic-black-dial-mens-watch-h70405730.html?utm_source=google&utm_medium=cpc&utm_campaign=PMax%3A%20%28ROI%29%20Smart%20Shopping%20-%20Sale%20Watches%20%24100%20-%20%241%2C000&utm_id=18335885666&utm_content=&utm_term=&gad_source=1&gad_campaignid=17424858923&gbraid=0AAAAAD_rBkmUH5bhGzLxaYD85UcwicGwP&gclid=CjwKCAjwr5_CBhBlEiwAzfwYuEMFjlLrGPxiX9FWnmh9rss-JI01eN6jB_v-Ht00X9-zf_QfVE8uFBoC70AQAvD_BwE) and the one mathew [wore](https://teddybaldassarre.com/products/khaki-aviation-pilot-day-date-auto) and in-general hamilton brand [here](https://www.hamiltonwatch.com/en-us/filter-by/pilot-watches.html?hamilton_status=5616_5962)
 ## Leather jackets
 
 1. [Boda Skins](https://bodaskins.us.com/products/hendrix)
