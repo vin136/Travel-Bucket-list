@@ -140,7 +140,8 @@ vintage mens wear
 
 #shirts
 
-1. flannel : [ariat](https://www.ariat.com/P30489_M_APP.html?dwvar_P30489__M__APP_color=NAVY_MALBEC)
+1. flannel : [ariat](https://www.ariat.com/P30489_M_APP.html?dwvar_P30489__M__APP_color=NAVY_MALBEC), [duckworth](https://www.duckworthco.com/products/mens-sawtooth-shirt?variant=50633655615808)
+2. General mens shirts - [flint  tinder](https://huckberry.com/store/flint-and-tinder?category[]=category%2Fclothing%2Fshirts)
 
 kenneth play
 BRANDS
