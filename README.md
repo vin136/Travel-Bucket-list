@@ -138,7 +138,9 @@ vintage mens wear
 4. [real mccoys](https://therealmccoys.com/collections/outerwear/denim-jackets)
 
 
-#b
+#shirts
+
+1. flannel : [ariat](https://www.ariat.com/P30489_M_APP.html?dwvar_P30489__M__APP_color=NAVY_MALBEC)
 
 kenneth play
 BRANDS
