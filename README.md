@@ -140,7 +140,7 @@ vintage mens wear
 
 #shirts
 
-1. flannel : [ariat](https://www.ariat.com/P30489_M_APP.html?dwvar_P30489__M__APP_color=NAVY_MALBEC), [duckworth](https://www.duckworthco.com/products/mens-sawtooth-shirt?variant=50633655615808)
+1. flannel : [ariat](https://www.ariat.com/P30489_M_APP.html?dwvar_P30489__M__APP_color=NAVY_MALBEC), [duckworth](https://www.duckworthco.com/products/mens-sawtooth-shirt?variant=50633655615808), [proper cloth](https://propercloth.com/dress-shirts/japanese-washed-hickory-low-twist-glen-plaid-330431.html?utm_source=google&utm_medium=shopping&utm_campaign=930925657-149654130934&utm_content=S330431-14-pla-c-664691617884&gad_source=1&gad_campaignid=930925657&gbraid=0AAAAAD6Y72x5DZ4yuO20ccOi16RLiVSLW&gclid=CjwKCAjwpMTCBhA-EiwA_-MsmZcisJeUkvyuw89iuHaqJA3iF0l6zKAcXh23K91c5ZHF0Ro1q7qahxoCaKsQAvD_BwE)
 2. General mens shirts - [flint  tinder](https://huckberry.com/store/flint-and-tinder?category[]=category%2Fclothing%2Fshirts)
 
 kenneth play
